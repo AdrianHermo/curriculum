@@ -17,7 +17,7 @@ Actualmente estoy cursando el ciclo superior de DAM y tengo experiencia en sopor
 
 ### 📚 Ciclo Superior DAM
 **Desarrollo de Aplicaciones Multiplataforma**  
-🏫 IES Daniel Castelao  
+🏫 Daniel Castelao  
 📅 2025 - Actualidad
 
 ### 🖥️ Ciclo Medio SMR
